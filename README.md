@@ -1,0 +1,1 @@
+# https-coinpot.co-mine-dogecoin-ref-881A630D986C
